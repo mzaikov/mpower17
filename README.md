@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @mpower17
+- 👋 Hi, I’m @mzaikov
 - 📫 How to reach me maxim.zaykov97@gmail.com
 
 <!---
